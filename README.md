@@ -27,8 +27,7 @@ Seasoned **SEO strategist** with **13+ years** of industry experience, passionat
 ## Let's Connect
 
 - 🌐 **SERP Journal** — [serp.one](https://serp.one) — My SEO experiments and findings
-- 💼 **GitHub** — You're here! Exploring my projects and contributions
-- 🐦 **Twitter/X** — [@venkatweetz](https://twitter.com/venkatweetz) (if applicable)
+- 🐦 **Twitter/X** — [@venkatweetz](https://twitter.com/venkatweetz)
 
 ## Open to Collaboration
 
